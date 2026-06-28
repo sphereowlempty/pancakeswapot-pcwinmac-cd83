@@ -1,4 +1,4 @@
-# 
+# Premium pancakeswap trading bot extensions for Mac OS | Professional pancakeswap trading bot extensions for PC Windows. Featuring decentralized exchange api and mean reversion strategy — optimized for maximum performance.
 
 
 
